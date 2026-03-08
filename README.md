@@ -7,7 +7,7 @@
 <br>
 
 <p align="center">
-  <img src="teehee_nischa.png" width="400">
+  <img src="teehee_nischa.png" width="400" alt="nischa (me n who gang)">
 </p>
 
 <br>
