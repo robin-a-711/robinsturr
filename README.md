@@ -18,10 +18,13 @@
 </p>
 
 <p align="center">
-  <img src="teehee_nischa.png" width="400">
+  <img src="teehee_nischa.png" width="370">
 <br>
   me n who gang 
   </p>
 <p align="center">
   ➽────────────────────────────❥
+</p>
+<p align="center">
+  <img src="https://img.shields.io/badge/.°˖✧-3008-lightgrey">
 </p>
