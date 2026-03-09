@@ -1,9 +1,10 @@
 <p align="center">
   <a href="https://dealwithdecay.straw.page/">strawpage</a> //
-  <a href="https://pronouns.cc/@robinthat711">pronouns.cc</a>
+  <a href="https://pronouns.cc/@robinthat711">pronouns.cc</a> //
+  <a href="https://guns.lol/robinafterhours">guns.lol</a>
 </p>
 <p align="center">
-   atabook & guns.lol wip! 
+   atabook wip! 
 
 <br>
 
