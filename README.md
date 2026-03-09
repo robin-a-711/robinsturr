@@ -22,7 +22,7 @@
 </p>
 
 <p align="center">
-  <img src="teehee_nischa.png" width="370">
+  <img src="image-removebg-preview (17).png" width="370">
 <br>
   me n who gang 
   </p>
