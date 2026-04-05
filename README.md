@@ -16,7 +16,7 @@
 
 </p>
 <div align="center" dir="auto">
-  <a href="https://dealwithdecay.straw.page/">strawpage</a> ⸝⸝
+  strawpage redo soon bwahhh ⸝⸝
   <a href="https://pronouns.cc/@robinthat711">pronouns.cc</a> ⸝⸝
   <a href="https://guns.lol/robinafterhours">guns.lol</a> ⸝⸝
  <a href="https://robinsturr.atabook.org/">atabook</a>
