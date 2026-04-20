@@ -8,7 +8,10 @@
 </p>
 
 <p align="center">
-  "𝘚𝘰 𝘸𝘦 𝘣𝘦𝘢𝘵 𝘰𝘯, 𝘣𝘰𝘢𝘵𝘴 𝘢𝘨𝘢𝘪𝘯𝘴𝘵 𝘵𝘩𝘦 𝘤𝘶𝘳𝘳𝘦𝘯𝘵, 𝘣𝘰𝘳𝘯𝘦 𝘣𝘢𝘤𝘬 𝘤𝘦𝘢𝘴𝘦𝘭𝘦𝘴𝘴𝘭𝘺 𝘪𝘯𝘵𝘰 𝘵𝘩𝘦 𝘱𝘢𝘴𝘵."
+"𝘚𝘰 𝘸𝘦 𝘣𝘦𝘢𝘵 𝘰𝘯, 𝘣𝘰𝘢𝘵𝘴 𝘢𝘨𝘢𝘪𝘯𝘴𝘵 𝘵𝘩𝘦 𝘤𝘶𝘳𝘳𝘦𝘯𝘵, 𝘣𝘰𝘳𝘯𝘦 𝘣𝘢𝘤𝘬 𝘤𝘦𝘢𝘴𝘦𝘭𝘦𝘴𝘴𝘭𝘺 𝘪𝘯𝘵𝘰 𝘵𝘩𝘦 𝘱𝘢𝘴𝘵."<br>
+|| 𝘮𝘺 12𝘢𝘮 , 𝘺𝘰𝘶𝘳 9𝘢𝘮 ||<br>
+------------------------------------------------------------------
+</p>
 ‎
 <p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://64.media.tumblr.com/46c0159d9f2d975d38e342df5376a802/tumblr_mn1g2upevM1sqgfcvo1_500.gif" style="max-width: 100%;"></a> <br/>
 
